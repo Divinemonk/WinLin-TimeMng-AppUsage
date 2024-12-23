@@ -1,0 +1,3 @@
+
+### Free
+- https://activitywatch.net
